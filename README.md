@@ -5,6 +5,6 @@ Part 1 of the code is to highlight the distribution of severe housing issues acr
 
 Part 2 is to spotlight how these severe housing issues caused by environmental factors & socioeconomic stressors impact the population through preventable fatalities.
 
-These visuals are to showcase the importance of intervention for substance abuse, and to encourage allocating funding for prevention programs.
+These visuals are to showcase the importance of intervention for substance abuse & housing resources, and to encourage allocating funding for prevention programs & shelters.
 
 22 June 2025
